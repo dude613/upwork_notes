@@ -1,5 +1,4 @@
 # upwork_notes
-upwork_notes
 Hi!
 
 I like your profile a lot, I have done some work with freelancers - tracking time through HiveDesk.com and then paying through crypto or paypal. For instant payments and MUCH MUCH lower fees (than the crazy upwork ones).
